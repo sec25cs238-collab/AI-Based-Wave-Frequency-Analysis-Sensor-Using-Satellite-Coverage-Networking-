@@ -1,0 +1,1 @@
+# AI-Based-Wave-Frequency-Analysis-Sensor-Using-Satellite-Coverage-Networking-
